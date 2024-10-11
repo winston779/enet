@@ -1,6 +1,6 @@
 # ENET机场官网地址
 
-最新地址：[easy2023.com](https://www.easy2023.com/#/register?code=FyMvgwkK)
+最新地址：[easy2023.com](https://www.easyenable.com/#/register?code=FyMvgwkK)
 
 ## ENET介绍
 
